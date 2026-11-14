@@ -1,0 +1,1 @@
+# qr-certificate-details-6696235ce89a44o
